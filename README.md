@@ -13,6 +13,11 @@ pls DO  :  int if ur pony is from these fandoms  !   -  hazbin hotel , helluva b
 
 pls DONT  :  start a valdust suggestive convo with me ,  copy  ,  int when name says dni ,  cover  ,  be weird  .
 
+this thing dni 
+
+![image](https://github.com/poizondbby/poizondbby/assets/151479507/c849e4c1-dfd1-4a81-a3c6-d8a8fb850808)
+
+
 thank yu <3
 
 ♥ ![D1-C3-C46-B-209-A-4-E99-9-AC0-70-FC4-EAB52-CE](https://github.com/poizondbby/poizondbby/assets/151479507/fe5b9805-0280-494d-aae9-a2c256242c23)![C8-BF2-B62-D1-A5-43-A4-85-E9-2-F424001191-B](https://github.com/poizondbby/poizondbby/assets/151479507/7a025720-4d25-4c9b-aaaa-e15de3daa65c) ♥
