@@ -8,12 +8,12 @@
  
 ୨୧  ⸝  ⸝ hi!!! yuve def come from pt :3 .  here r my boundaries for my ponies/for interactiuns  ! ꒷  ꒥
 
-pls DO  :  int if ur pony is from these fandoms  !   -  hazbin hotel , helluva boss , thats not my neighbor , newsies , total drama , falsettos , trolls , object sho community , musicals , ect - approach me if ur pony is HUSK  !!! X333 !
+pls DO  :  int if ur pony is from these fandoms  !   -  hazbin hotel , helluva boss , thats not my neighbor , newsies , total drama , falsettos , trolls , object sho community , musicals , ect - approach me if ur pony is HUSK  !!! X333 ! um um whatelse.... cuddle + hide + boop! i dont have a touch trigger, im a bit anxious when it comes ta talkin tho! pls be patient wif me.
 
 
 pls DONT  :  start a valdust suggestive convo with me ,  copy  ,  int when name says dni ,  cover  ,  be weird  .
 
-this thing dni 
+this thing dni (srry jozie love ur ... husk(?)... it just scares me.
 
 ![image](https://github.com/poizondbby/poizondbby/assets/151479507/c849e4c1-dfd1-4a81-a3c6-d8a8fb850808)
 
